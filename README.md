@@ -12,4 +12,4 @@ guilhermef.emerencio@gmail.com
 
 @mffreiree
 
-![](https://tenor.com/pt-BR/view/hello-hi-smile-hi-smile-hello-smile-gif-15743679661060099162)
+![](https://tenor.com/sVanNmMf8Ri.gif)
