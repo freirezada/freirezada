@@ -1,6 +1,6 @@
 #### oii, bem vindo ao meu perfil. 💛
 
-Meu nome é Guilherme Freire.
+Meu nome é **Guilherme Freire**.
 
 - Estou estudando na alura.
 - Estou me desenvolvendo em JavaScript
