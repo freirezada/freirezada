@@ -12,4 +12,4 @@ guilhermef.emerencio@gmail.com
 
 @mffreiree
 
-![](https://giphy.com/gifs/the-simpsons-hello-hi-ASd0Ukj0y3qMM)
+![](https://tenor.com/pt-BR/view/hello-hi-smile-hi-smile-hello-smile-gif-15743679661060099162)
